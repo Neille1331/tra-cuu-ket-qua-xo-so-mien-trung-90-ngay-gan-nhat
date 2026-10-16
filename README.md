@@ -7,7 +7,8 @@ Chào mừng anh chị đã đến với chuyên trang thông tin xổ số ki�
 Để không bỏ lỡ những khoảnh khắc công bố kết quả trực tiếp, anh chị cần ghi nhớ khung giờ quay thưởng cố định của khu vực miền Trung. Toàn bộ quy trình quay số kết quả xskt sẽ được diễn ra từ 17 giờ 15 phút đến 17 giờ 35 phút hàng ngày. Mỗi ngày sẽ có từ hai đến ba đài cùng tham gia mở thưởng, tùy thuộc vào lịch trình đã được quy định bởi Hội đồng xổ số kiến thiết miền Trung.
 
 ![](https://i.pinimg.com/736x/53/7e/db/537edb32e9c65f09de7b02d209783bc6.jpg)
- Trực tiếp xổ số miền Trung - Nguồn: Ảnh do Xổ Số Đại Phát cung cấp
+
+Trực tiếp xổ số miền Trung - Nguồn: Ảnh do Xổ Số Đại Phát cung cấp
 
 **Lịch mở thưởng cụ thể trong tuần cho các đài miền Trung**
 
@@ -36,6 +37,8 @@ Xổ số kiến thiết miền Trung sử dụng loại vé mệnh giá 10.000 
 - **Giải Tám:** Có 10.000 giải, mỗi giải trị giá 100.000 VNĐ.
 
 **Các hạng giải phụ và giải khuyến khích**
+
+Xem thêm: [https://cara.app/post/f42b837f-9c0a-453f-bd51-0b8a70cbad2e](https://cara.app/post/f42b837f-9c0a-453f-bd51-0b8a70cbad2e)
 
 Bên cạnh các giải chính, anh chị còn có thể nhận được các giải thưởng khác bao gồm 09 Giải Phụ Đặc biệt trị giá 50.000.000 VNĐ mỗi giải dành cho những vé chỉ sai một chữ số ở hàng trăm ngàn so với giải Đặc biệt. Ngoài ra, còn có 45 Giải Khuyến khích trị giá 6.000.000 VNĐ mỗi giải dành cho những vé sai một chữ số ở bất kỳ hàng nào còn lại so với giải Đặc biệt.
 
