@@ -36,10 +36,9 @@ Xổ số kiến thiết miền Trung sử dụng loại vé mệnh giá 10.000 
 - **Giải Bảy:** Có 1000 giải, mỗi giải trị giá 200.000 VNĐ.
 - **Giải Tám:** Có 10.000 giải, mỗi giải trị giá 100.000 VNĐ.
 
-**Các hạng giải phụ và giải khuyến khích**
-
 Xem thêm: [https://cara.app/post/f42b837f-9c0a-453f-bd51-0b8a70cbad2e](https://cara.app/post/f42b837f-9c0a-453f-bd51-0b8a70cbad2e)
 
+**Các hạng giải phụ và giải khuyến khích**
 Bên cạnh các giải chính, anh chị còn có thể nhận được các giải thưởng khác bao gồm 09 Giải Phụ Đặc biệt trị giá 50.000.000 VNĐ mỗi giải dành cho những vé chỉ sai một chữ số ở hàng trăm ngàn so với giải Đặc biệt. Ngoài ra, còn có 45 Giải Khuyến khích trị giá 6.000.000 VNĐ mỗi giải dành cho những vé sai một chữ số ở bất kỳ hàng nào còn lại so với giải Đặc biệt.
 
 ## 3. TRẢI NGHIỆM TRA CỨU KẾT QUẢ TRÊN NỀN TẢNG SỐ HIỆN ĐẠI
